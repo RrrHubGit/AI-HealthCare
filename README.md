@@ -118,4 +118,4 @@ MIT License – Free to use, modify, and distribute.
 🌍 Let’s Build the Future
 No one should lack healthcare due to their location. Join us in redefining rural healthcare accessibility with AI for Good!
 
-Contact Us: satyamku88@gmail.com
+Contact Us: rrravipc@gmail.com
